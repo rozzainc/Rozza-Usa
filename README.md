@@ -1,5 +1,5 @@
 # ROZZA USA LLC
-
+![Financial Consulting](https://images.unsplash.com/photo-1554224155-6726b3ff858f?auto=format&fit=crop&w=1350&q=80)
 **Financial Consulting & Strategic Analysis**
 
 ---
